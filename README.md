@@ -1,0 +1,1 @@
+# Refatora-o-Cognitiva-de-Interface---25-04-2026
